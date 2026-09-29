@@ -1,0 +1,2 @@
+# premium-burn-decoy-001-pyrography-feather-detail-burn
+Tired of losing track of your feather patterns and burning schedules? The Pyrography Feather Detail Burning Planner organizes every scorch, shade, and stroke so you never miss a detail.  This Notion template solves the chaos of managing multiple pyrography projects by providing a dedicated workspace for feather designs, technique logs, and timeline
